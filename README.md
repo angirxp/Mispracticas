@@ -1,2 +1,1 @@
 ﻿# Mispracticas
-# PATROCINIO POR MERCURY TC
